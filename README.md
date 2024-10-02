@@ -1,2 +1,2 @@
 # SaneSay.com
-Books for kids
+Books to grow up with
